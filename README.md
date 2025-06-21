@@ -1,1 +1,0 @@
-# GreenGarden-Almaty
